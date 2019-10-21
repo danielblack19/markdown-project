@@ -5,6 +5,7 @@ Priceless Relics of the Spanish Armada
 **by ROBERT STENUIT**
 
 *Illustrations by National Geographic*
+
 *Photographer Bates Lilttlehales*
 
 A WILD NORTH WIND lashed the galleass as she sailed eastward across the top of Ireland. A monstrous wave had smashed her jury rudder; now she yawed and rolled in the troughs, making relentless leeway toward night-hidden cliffs to starboard.
