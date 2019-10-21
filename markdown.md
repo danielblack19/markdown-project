@@ -1,6 +1,6 @@
-##IRELAND'S RUGGED COAST YIELDS
+IRELAND'S RUGGED COAST YIELDS
 
-#Priceless Relics of the Spanish Armada
+Priceless Relics of the Spanish Armada
 ---------------------------------------
 **by ROBERT STENUIT**
 
